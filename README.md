@@ -156,6 +156,9 @@ Kalian bisa menambahkan genre atau subgenre playlist kalian, jika masih belum ad
 | ------------- | ------------- | -------- | ------- | --------- |
 | Juz Amma - Abdul Rahman Al-Sudais | [YouTube](https://www.youtube.com/watch?v=XEjxilsYV8A&list=PL374076F8A52313C9) | Youtube | [aziz80](https://www.youtube.com/user/aziz80) | - |
 | Tilawah - Ust. Hannan Attaki | [YouTube](https://www.youtube.com/playlist?list=PLPVaZBOpYqfDkN-AEA_qVpMMFxycBk4_q) | Youtube | [HananAttaki](https://www.youtube.com/c/HananAttaki) | - |
+| Surah Maryam Full Merdu Beautiful Quran Recitation - Salim Al-Ruwaili | [Youtube](https://youtu.be/bbdEhtip15E) | Youtube | [Tadabbur Daily](https://www.youtube.com/channel/UCyMEcE5_blYmWE2H5NbDr0w) | - |
+| SALIM BAHANAN JUZ 30 - SURAT AD DHUHA - AN NAS | [Youtube](https://www.youtube.com/watch?v=Vm6avc0fSIY) | Youtube | [Salim Bahanan](https://www.youtube.com/channel/UCK_qxDfSH_E4cSlSEDT2aJA) | - |
+| al Qur'an Juz 29 Abu Usamah - Best Quran Recitation | [Youtube](https://www.youtube.com/watch?v=kCSfg-DuMP0) | Youtube | [Tadabbur Daily](https://www.youtube.com/channel/UCyMEcE5_blYmWE2H5NbDr0w) | - |
 
 ## Soul
 
